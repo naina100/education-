@@ -1,0 +1,2 @@
+# education-
+The qualified students of JEE Main and JEE Advanced are invited for JoSAA Registration 2019. The registration will be initiated by the Joint Seat Allocation Authority. Candidates can register themselves on the official website. After registration of JoSAA 2019, applicants will be able to take part in the 7 rounds of counselling and seat allotment. Thus it is mandatory for qualifiers to do JoSAA 2019 registration so as to obtain a seat in any of the 100 participating institutes.know more about JOSAA 2019 Registration https://josaa2019.in/josaa-registration/
